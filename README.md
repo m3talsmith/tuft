@@ -14,7 +14,7 @@ TBD
 
 > Robert Frost (1874–1963).  A Boy’s Will.  1915. 
 >
-> 24. The Tuft of Flowers
+> The Tuft of Flowers
 
 > I WENT to turn the grass once after one
 >
